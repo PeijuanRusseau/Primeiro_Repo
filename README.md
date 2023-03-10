@@ -1,5 +1,5 @@
 # meu repositório
-* Fimoses a la carte
+* Cabelo cortado
 * Por um preço acessivel
-* Apenas hoje
 * Brinde de queijo
+* Cabelo marrento
